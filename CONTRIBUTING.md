@@ -1,1 +1,1 @@
-There isn't any contribution guidelines :)
+There isn't any contribution guidelines :)  ¯\_(ツ)_/¯
